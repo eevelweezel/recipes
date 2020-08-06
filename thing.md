@@ -1,17 +1,29 @@
 # Thing
 
 olive oil
+
 1 lb. meat (fake or real)
+
 5 cloves garlic, peeled and crushed
+
 2-3 tomatoes
+
 1 cup gravy (vegan or brown)
+
 1/2 cup heavy cream or greek yogurt
+
 1/4 cup Parmesan or Romano cheese
+
 1 pile fresh oregano
+
 1 pile fresh rosemary
+
 cayenne pepper to taste
+
 1 lb. penne pasta
+
 For topping: 1 cup coarsely grated Mozzarella or Swiss cheese
+
 
 1.  Preheat oven to 350 degrees.
 2.  Put four quarts of water on to boil in a large pot.
