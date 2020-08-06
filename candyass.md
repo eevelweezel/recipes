@@ -1,5 +1,8 @@
 # Candyass Dry Rub
-Awesome on pork, chicken, zucchini, mushrooms, etc.
+Awesome on pork, chicken, zucchini, mushrooms, etc. 
+
+Actually, it's just awesome.
+
 
 2 tsp corriander
 
