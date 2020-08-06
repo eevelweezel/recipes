@@ -27,7 +27,7 @@ Cook the spaghetti to al dente.
 
 Puret the anchovies and olives in a food processor.
 
-Heat the olive oil and sautee the garlic and onion.
+Heat the olive oil and saute the garlic and onion.
 
 Add tomatoes, and cook until starting to liquify.  
 
