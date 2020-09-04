@@ -27,11 +27,11 @@ Cook the spaghetti to al dente.
 
 Puret the anchovies and olives in a food processor.
 
-Heat the olive oil and saute the garlic and onion.
+Heat the olive oil and saute the garlic and onion/shallot.
 
 Add tomatoes, and cook until starting to liquify.  
 
-Add olive & anchovy mixture, wine, and shallots. Simmer for 20-30 minutes.  
+Add olive & anchovy mixture and wine. Simmer for 20-30 minutes.  
 
 Season to taste with fresh oregano, black pepper, and cayenne.
 
