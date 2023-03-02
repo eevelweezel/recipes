@@ -17,6 +17,6 @@
 
 Trim cilantro & scallions, and chop ginger into 1/2" pieces. Put everything EXCEPT the pepper in the food processor.
 
-Use to marinate your favorite protein.  Unless you're a masochist, add the pepper pepper WHOLE while cooking said protein. Compliment with curry powder, pepper, Garam Masala, etc.
+Use to marinate your favorite protein.  Unless you're a masochist, add the pepper WHOLE while cooking said protein. Compliment with curry powder, pepper, Garam Masala, etc.
 
 
