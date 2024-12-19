@@ -6,7 +6,7 @@ olive oil
 
 5 cloves garlic, peeled and crushed
 
-2-3 tomatoes (add extra if going with plant-based protein)
+2-4 tomatoes (add more if going with plant-based protein)
 
 1 cup gravy (vegan or brown)
 
@@ -27,13 +27,10 @@ For topping: 1 cup coarsely grated Mozzarella or Swiss cheese (or a combination 
 
 1.  Preheat oven to 350 degrees.
 2.  Put four quarts of water on to boil in a large pot.
-3.  Heat a large skillet and add oil and garlic. If using real meat, add it now and cook until browned. Add tomatoes and cook until they release their liquid, then simmer for 3-5 minutes. Add all remaining ingredients except pasta and topping. If using fake meat, add it now.
+3.  Heat a large skillet and add oil and garlic. If using real meat, add it now and cook until browned. Add tomatoes and cook until they release their liquid, then simmer for 3-5 minutes. Add all remaining ingredients except pasta and topping. If using plant-based protein, add it now.
 4.  Simmer the mixture while the pasta cooks until just barely tender.
-5.  Drain pasta and mix with ingredients in skillet.  Pour into a 3 quart rectangular baking dish (9 X 13 inch pan).  Top with remaining cheese.
+5.  Drain pasta and mix with ingredients in skillet.  Pour into a 3 quart rectangular baking dish (9 X 13 inch pan).  Spread topping over pasta.
 6.  Bake for 25 minutes or until all is bubbly hot.
-
-
-Aside from when to add the protein, the directions for Vegan Thing aren't significantly different. You may want to add an extra tomato for liquid. 
 
 
 Serves 6.
