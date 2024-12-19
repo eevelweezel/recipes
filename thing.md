@@ -2,17 +2,17 @@
 
 olive oil
 
-1 lb. meat (fake or real)
+1 lb. meat (real or plant-based)
 
 5 cloves garlic, peeled and crushed
 
-2-3 tomatoes
+2-3 tomatoes (add extra if going with plant-based protein)
 
 1 cup gravy (vegan or brown)
 
-1/2 cup heavy cream or greek yogurt
+1/2 cup heavy cream or greek yogurt (or 1/2 c tahini)
 
-1/4 cup Parmesan or Romano cheese
+1/4 cup Parmesan or Romano cheese (or 1/4 c coconut milk)
 
 1 pile fresh oregano
 
@@ -22,7 +22,7 @@ cayenne pepper to taste
 
 1 lb. penne pasta
 
-For topping: 1 cup coarsely grated Mozzarella or Swiss cheese
+For topping: 1 cup coarsely grated Mozzarella or Swiss cheese (or a combination panko and chopped cashews)
 
 
 1.  Preheat oven to 350 degrees.
@@ -33,7 +33,7 @@ For topping: 1 cup coarsely grated Mozzarella or Swiss cheese
 6.  Bake for 25 minutes or until all is bubbly hot.
 
 
-To make vegan, replace dairy in pasta with 1/4 c coconut milk and 1/2 c tahini. Replace cheese topping with panko and chopped cashews (or pine nuts).
+Aside from when to add the protein, the directions for Vegan Thing aren't significantly different. You may want to add an extra tomato for liquid. 
 
 
 Serves 6.
