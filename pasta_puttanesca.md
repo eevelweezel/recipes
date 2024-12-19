@@ -6,7 +6,7 @@ olive oil
 
 3-4 cloves garlic, minced
 
-1 can anchovies
+1 can anchovies OR add 4 oz additional olives
 
 8 oz pitted kalamata olives
 
@@ -36,4 +36,4 @@ Add olive & anchovy mixture and wine. Simmer for 20-30 minutes.
 Season to taste with fresh oregano, black pepper, and cayenne.
 
 
-Serve topped with fresh basil and grated Manchego.
+Serve topped with fresh basil, pine nuts, or grated Manchego.
